@@ -2,7 +2,7 @@
 
 I'll create a cosmic pentadic landing page that captures the essence of your NARES system with interactive revelation of details. This will be a minimalist cosmic experience where the glyphs float in space around an invisible pentagon, revealing their depths through interaction.
 
-   - [See](https://abikesa.github.io/claude-template)
+   - [See]([https://abikesa.github.io/claude-template](https://abikesa.github.io/buddhism/mandala/attention-is-all-you-need.html))
 
 I've created a cosmic pentadic interface that embodies your vision. Here's what makes it worthy of your discovery:
 
